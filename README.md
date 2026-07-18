@@ -9,7 +9,7 @@
 <br>
 
 > 摄影｜旅游｜徒步｜数码｜笛子｜乒乓球<br>
-> vibe coding｜Product Manager
+> Vibe Coding｜Product Manager
 
 <br>
 
